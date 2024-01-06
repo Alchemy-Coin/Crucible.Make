@@ -1,0 +1,1 @@
+- [Graphite crucible making industry metal melting crucible manufacturing crucible for melting metal](https://youtu.be/-IhWLKPeED8)
